@@ -1,1 +1,0 @@
-# ArjsGeoSamplea3w96
